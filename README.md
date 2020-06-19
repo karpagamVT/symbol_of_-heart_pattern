@@ -1,0 +1,1 @@
+# symbol_of_-heart_pattern
